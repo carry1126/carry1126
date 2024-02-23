@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Minji
 - 👀 I’m interested in processing project and programming.
 - 🌱 I’m currently learning programming with study members.
-- 💞️ I’m looking for job collaborate with team members on working.
+- 💞️ I’m looking for Job Position can collaborate with team members on working.
 - 📫 How to reach me by anny8126@naver.com
 
 <!---
